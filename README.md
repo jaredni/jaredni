@@ -2,7 +2,7 @@
 - I am super outgoing. 🏖️ 
 - Enjoys his four-times-a-week gym sessions. 🏋️🏋️🏋️🏋️ 
 - Pizzas are vegetables. 🍕🥦 
-- Vegetarian. 🥦🗞️🔥👀 
+- Vegetarian. 🥦
 - Talk to me. 😉
 
 <!---
